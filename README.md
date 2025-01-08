@@ -5,3 +5,5 @@
 - 📫 its works with an EVM system and since uses Moralis SDK Cryptocurrency
 - 😄 You can even use it on
 - ⚡ Solana! Happy Build!
+https://github.com/Cryptocurrencychain
+#crypto #giveaway #chain #ethereum
